@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Mamio0
+- 👋 Hi, I’m Mamio
 - 📫 How to reach me mhmtozmn34@hotmail.com
